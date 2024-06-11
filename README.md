@@ -1,1 +1,1 @@
-# [Website](https://schan676.github.io/samchan/)
+# [check out my website](https://schan676.github.io/samchan/)
